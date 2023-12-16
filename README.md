@@ -9,6 +9,8 @@
 
 ### My future goals: 
 
+- 😃to learn programming languages
+
 - 😃to work on different projects
 
 - 😃cooperate with other people
